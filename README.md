@@ -1,5 +1,2 @@
 - 👋 Hi, I’m Narzikulov Sunnatbek
-- 👀 I’m interested in playing guitar
-- 🌱 I’m currently learning an English
-- 💞️ I’m looking to collaborate on learning Linux
 - 📫 How to reach me - inst: @mr.manafest
